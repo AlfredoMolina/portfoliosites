@@ -17,5 +17,4 @@ https://mooresvillewebdevelopment.com/
 <br>
 https://canterpowersystems.com/
 
-<br>
 https://primehomeservicesnc.com/
