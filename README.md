@@ -16,5 +16,4 @@ https://jordanstine.com/
 https://mooresvillewebdevelopment.com/
 <br>
 https://canterpowersystems.com/
-
 https://primehomeservicesnc.com/
